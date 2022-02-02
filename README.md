@@ -1,3 +1,3 @@
 # Edvinas-Drink
 
-vasario 17 dieną jums visiems pizda
+visksa niggas, vasario 17 dieną jums visiems pizda
